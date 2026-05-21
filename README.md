@@ -1,1 +1,0 @@
-# karyakelas1a
